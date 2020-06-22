@@ -13,3 +13,5 @@ Das Böse wird aus dem Weg geräumt und die Schätze abgeräumt.
 * sind nicht nachtragend
 
 > Knusper Knusper Knäuschen, wer knuspert an meinem Häuschen. Der Wind, der Wind, das himmlische Kind
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/f/f0/H%C3%A4nsel_und_Gretel.jpg"/>
