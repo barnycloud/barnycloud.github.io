@@ -11,3 +11,5 @@ Das Böse wird aus dem Weg geräumt und die Schätze abgeräumt.
 * überreden die Ente, sie über den Teich zu bringen
 * beschenken den Vater
 * sind nicht nachtragend
+
+> Knusper Knusper Knäuschen, wer knuspert an meinem Häuschen. Der Wind, der Wind, das himmlische Kind
